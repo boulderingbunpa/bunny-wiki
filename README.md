@@ -13,6 +13,7 @@ Welcome to bunny land!
 - HEMMABAK Loaf pan, gray, 1.9 qt, for hay feeder. Can put one of these also on the toilet box, since bunnies like to eat while pooping. https://www.ikea.com/us/en/p/hemmabak-loaf-pan-gray-30456692/
 - LÄTTUGGAD Snack container, set of 2, stainless steel. I use it to feed water and pellets  https://www.ikea.com/us/en/p/laettuggad-snack-container-set-of-2-stainless-steel-20498918/
 - SAMLA series. I use it to store hay  https://www.ikea.com/us/en/cat/samla-series-12553/
+- Stone/ceramic tiles from Lowe's/Home Depot. Useful to give your bunny a variety for floor textures, and scratch their nails on. Can also provide a cooler surface for them to lay on in the summer, and helps weigh down mattress covers.
 
 ## food
 
