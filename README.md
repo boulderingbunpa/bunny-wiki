@@ -14,6 +14,7 @@ Welcome to bunny land!
 - LÄTTUGGAD Snack container, set of 2, stainless steel. I use it to feed water and pellets  https://www.ikea.com/us/en/p/laettuggad-snack-container-set-of-2-stainless-steel-20498918/
 - SAMLA series. I use it to store hay  https://www.ikea.com/us/en/cat/samla-series-12553/
 - Stone/ceramic tiles from Lowe's/Home Depot. Useful to give your bunny a variety for floor textures, and scratch their nails on. Can also provide a cooler surface for them to lay on in the summer, and helps weigh down mattress covers.
+- Xifando Mini Broom with Dustpan for Kids.  https://www.amazon.com/Xifan-Dustpan-Little-Housekeeping-Helper/dp/B09T94787M/
 
 ## food
 
