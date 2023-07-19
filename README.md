@@ -1,5 +1,6 @@
 # bunny-wiki
 
+バニーランドへようこそ。
 Welcome to bunny land!
 
 ## living space
