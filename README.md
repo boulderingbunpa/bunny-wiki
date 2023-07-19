@@ -33,8 +33,8 @@ An-Jan Bay Area stores are great to buy rabbit food and materials. They have thi
 
 When your bunny pees outside the box, soak it up with a tissue and place it inside the box. Over time she will associate peeing with the box. Can also put her poops into there. It might help to put the box in one of the corners of her area, because their instinct is to pee in a corner of their living area.
 
-If you see a cecotrope (wet poop):
-1. if it's really fresh/you saw it just came out, you can get a tissue and pick it up and try to feed it to her
+Cecotropes are their second kind of poop, they are wet, smelly and look like blackberries. Usually bunnies eat these directly from their bumhole. If you see a cecotrope on the floor:
+1. if it's really fresh, and clean/you saw it just came out, you can get a tissue and pick it up and try to feed it to her
 2. if you don't know that it's fresh, use a tissue and pick it up and throw it in the trash
 
 
