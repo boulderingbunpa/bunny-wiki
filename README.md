@@ -1,5 +1,7 @@
 # bunny-wiki
 
+Welcome to bunny land!
+
 ## living space
 
 - LENAST Waterproof mattress protector, 38x75" for floor if bunny is not potty trained.   https://www.ikea.com/us/en/p/lenast-waterproof-mattress-protector-40448296/
