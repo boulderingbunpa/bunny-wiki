@@ -20,7 +20,7 @@ Welcome to bunny land!
 
 Young rabbits (older than 6 weeks, younger than 6 months):
 - Alfalfa hay (95% of diet with pellets)
-- Alfalfa pellets (~1/2 cup a day)
+- Alfalfa pellets, smaller size (~1/2 cup a day)
 - Treats (5% of diet)
 
 - Supreme Petfoods 3 Pack of Selective Naturals Woodland Loops Guinea Pig Treats, 2.8 Ounces each, with Dandelion and Rosehip.  A favorite for my bunnies. https://www.amazon.com/Supreme-Selective-Naturals-Woodland-Loops/dp/B07SKY1JVQ/
