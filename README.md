@@ -27,8 +27,6 @@ Young rabbits (older than 6 weeks, younger than 6 months):
 
 Treats: avoid things that obviously have too much sugar. Like yogurt drops.
 
-An-Jan Bay Area stores are great to buy rabbit food and materials. They have things on sale in bulk (hay, pellets), but you have to ask them (not on the showroom floor). It's much cheaper if you buy these in bulk. These come from their behind-the-store warehouse. Sometimes, I've had termites from the warehouse goods. Due to this, you should quarantine the warehouse products somewhere in your house (e.g. plastic storage garbage can).
-
 ## training
 
 ### toilet training basics
